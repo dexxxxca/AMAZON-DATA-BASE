@@ -5,16 +5,3 @@ STORES
 3
 4
 5
-gfsg
-sdgdg
-sdgsgds
-sdggds
-sdgdg
-sdggdgds
-dsgddsg
-dsgdgd
-sdgdggds
-sd4wtw
-sdgdg
-sdrgd
-dgdsgrsg
